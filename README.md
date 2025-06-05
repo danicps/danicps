@@ -3,4 +3,4 @@
 - 🌸 19y 
 - 📍 Brasília - Brasil
 - 👩‍🎓 Análise e Desenvolvimento de Sistemas - UNICEUB 
-- 💜 Atualmente trabalho como: Aprendiz de TI 
+- 💜 Buscando sempre novas oportunidades de aprender!
